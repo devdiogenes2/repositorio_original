@@ -4,4 +4,6 @@ Inscreva-se
 
 Curta
 
+Comente
+
 Compartilhe
